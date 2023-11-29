@@ -1,2 +1,3 @@
-I'm a statistical programmer working for a CRO.
+MSc Masters Student @ Lancaster University
 
+(On Sabbatical)
