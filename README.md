@@ -1,3 +1,3 @@
-MSc Masters Student @ Lancaster University
+MSc Statistics Student @ Lancaster University
 
 (On Sabbatical)
