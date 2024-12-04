@@ -1,3 +1,9 @@
-MSc Statistics Student @ Lancaster University
+Statistical Programmer @ Veramed
 
-(On Sabbatical)
+Blog @ [tomratford.co.uk](https://tomratford.co.uk)
+
+### Education
+
+* MSc Statistics @ Lancaster University
+
+* BSc Mathematical Sciences @ University of Bath
