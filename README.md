@@ -1,4 +1,4 @@
-Statistical Programmer @ Veramed
+Data Scientist @ Veramed
 
 Blog @ [tomratford.co.uk](https://tomratford.co.uk)
 
